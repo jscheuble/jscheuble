@@ -1,4 +1,4 @@
-## Hi, I'm Jana - @jscheuble 👋
+## Hi, I'm Jana - @jscheuble (She/her) 👋
 
 
 ### About
